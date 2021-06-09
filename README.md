@@ -2,7 +2,7 @@
 Hey there!<br>
 my name is Sophie Power and I'm a Tech Recruiter (soz) who works predominantly with Start-up/Scale-up businesses hiring in tech.
 <br>
-<b>What else?</b>
+<b>What else?</b><br>
 Love outdoor swimming, scuba diving, reading, and travelling.  <br>
 Used to run a tea drinking society<br>
 Currently run DBR - which I've heard described as "the dark web of internal recruitment" (it's not, it's just memes and rants about LinkedIn - we all hate it too)
